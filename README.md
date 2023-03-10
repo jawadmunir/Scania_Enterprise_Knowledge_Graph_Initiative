@@ -1,0 +1,1 @@
+# Scania_Enterprise_Knowledge_Graph_Initiative
